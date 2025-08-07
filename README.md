@@ -1,2 +1,2 @@
 # ValeBox
-Hi
+Hi. [Link Coming Soon]
